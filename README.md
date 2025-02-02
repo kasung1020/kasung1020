@@ -39,7 +39,7 @@
 
 ## 📫 **Let's Connect!**
 🔗 **Portfolio**: [Click here to view my portfolio 🚀](https://github.com/kasung1020/portfolio/blob/main/%EA%B0%95%EC%84%B1%EB%B9%88%ED%8F%AC%ED%8A%B8%ED%8F%B4%EB%A6%AC%EC%98%A4.pdf)
-📧 **Email**: your.email@example.com  
+📧 **Email**: 10hmsm11@naver.com  
 
 ---
 
